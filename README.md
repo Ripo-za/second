@@ -1,2 +1,1 @@
-# second
-lp is good
+za is lp's wife
